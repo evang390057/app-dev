@@ -18,4 +18,4 @@ My favorite character is Eleven because she is brave, strong, and cares about he
 > True friends stay together no matter what happens.
 
 ## Conclusion
-Overall, Stranger Things is my favorite series because it is exciting, entertaining, and full of lessons about friendship.
+Stranger Things is my favorite series because it is exciting, entertaining, and full of lessons about friendship.
